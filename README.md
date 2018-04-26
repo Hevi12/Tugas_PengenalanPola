@@ -1,0 +1,4 @@
+# Tugas_PengenalanPola
+
+
+
